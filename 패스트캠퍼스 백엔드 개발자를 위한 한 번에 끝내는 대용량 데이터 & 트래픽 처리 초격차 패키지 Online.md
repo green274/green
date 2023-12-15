@@ -12,3 +12,4 @@
 ![KakaoTalk_Photo_2023-12-15-15-04-45 002](https://github.com/green274/green/assets/153890448/cf95b4f5-e9fd-44b6-b541-08fc10c502dd)
 ![KakaoTalk_Photo_2023-12-15-15-04-45 003](https://github.com/green274/green/assets/153890448/5922d5ba-6005-4759-8728-f6e39088186f)
 
+'본 게시물은 패스트캠퍼스 수강 후기 이벤트 참여를 위해 작성되었습니다'
